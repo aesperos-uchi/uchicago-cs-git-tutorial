@@ -1,1 +1,1 @@
-Ava Speros# uchicago-cs-git-tutorial
+Ava Speros
